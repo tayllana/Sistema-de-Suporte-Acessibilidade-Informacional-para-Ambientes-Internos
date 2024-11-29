@@ -1,0 +1,1 @@
+# Sistema-de-Suporte-Acessibilidade-Informacional-para-Ambientes-Internos
